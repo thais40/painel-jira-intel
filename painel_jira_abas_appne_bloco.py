@@ -1,0 +1,1 @@
+# Painel completo com App NE/EN será reconstituído nas próximas etapas.
